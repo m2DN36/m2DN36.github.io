@@ -1,2 +1,1 @@
-# computersfinders.tk
-404 not found.
+404 not found, powered by m2DN36.github.io
